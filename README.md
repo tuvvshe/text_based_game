@@ -21,6 +21,7 @@ A passionate guy from Mongolia in Germany.
 
 💬 Ask me about anything
 
+
 🤝 I’m looking for help with startup
 
 👯 I’m looking to collaborate on ....
